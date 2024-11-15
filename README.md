@@ -2,7 +2,7 @@
 
 📍 West Bengal, India | 📞 +918927966963 | ✉️ subhankarmaiti40@gmail.com  
 🔗 [LinkedIn](https://www.linkedin.com/in/subhankarmaiti) | 🔗 [GitHub](https://github.com/subhankar-maiti)  
-🌎 Open to Relocate | 💼 Senior Software Development Engineer with 6+ years of experience
+💼 Senior Software Development Engineer with 6+ years of experience
 
 ---
 
